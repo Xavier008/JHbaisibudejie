@@ -1,2 +1,2 @@
 # JHbaisibudejie
-just for fun 
+just for funny
